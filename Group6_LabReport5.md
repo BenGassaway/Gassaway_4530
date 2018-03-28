@@ -1,0 +1,1 @@
+A company sold a ​$930 comma 000 issue of bonds with a 18​-year ​life, paying 5​% interest per year. The bonds were sold at par value. If the company paid a selling fee of ​$54 comma 000 and has an annual expense of ​$72 comma 301 for mailing and record​ keeping, what is the true rate of interest that the company is paying for the borrowed​ money?
